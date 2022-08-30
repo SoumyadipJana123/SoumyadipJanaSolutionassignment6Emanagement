@@ -1,0 +1,1 @@
+# SoumyadipJanaSolutionassignment6Emanagement
